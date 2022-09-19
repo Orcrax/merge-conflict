@@ -1,4 +1,4 @@
-Rue déserte
+Trop as-been comme chanson L O L
 Dernière cigarette
 Plus rien ne bouge
 Juste un bar qui éclaire le trottoir
