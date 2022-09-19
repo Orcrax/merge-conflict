@@ -1,4 +1,4 @@
-Rue déserte
+J'ADORE CETTE CHANSON J'SUIS TROP FAN J'LA CHANTE À CHAQUE FOIS AU KARAOKÉ !!!!!
 Dernière cigarette
 Plus rien ne bouge
 Juste un bar qui éclaire le trottoir
